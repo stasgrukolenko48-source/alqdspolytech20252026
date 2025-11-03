@@ -1,0 +1,1 @@
+# alqdspolytech20252026
